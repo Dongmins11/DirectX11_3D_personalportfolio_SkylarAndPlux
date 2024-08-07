@@ -4,7 +4,7 @@
 https://www.youtube.com/watch?v=frzYh1UGFYg
 
 ### 인원 
-4명
+1명
 
 ### 기간 
 2022.03.04 ~ 2024.05.11
